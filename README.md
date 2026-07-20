@@ -1,0 +1,2 @@
+# Miyako-
+Yapay zeka
